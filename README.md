@@ -2,14 +2,14 @@
   <tr align="center">
     <td>
 <div align="center">
-  <img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/G2lRDgcXIAAiUpy.png" width="260">
+  <img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/Prettywomanauuuuuugh.webp" width="260">
 
-$\text{\color{#459c7b} medkit ᵒʳ kit⠀━⠀19⠀ˢʰᵉ〳ₕₑ }$\
-$\text{\color{#459c7b}physment ill⠀﹋⠀ss subs yume}$\
-$\text{\color{#459c7b}c+h welcome , w2i always pls}$\
-$\text{\color{#459c7b}ac - mongrellic + trixxical}$
+$\text{\color{#950000} medkit ᵒʳ grace⠀━⠀19⠀ˢʰᵉ〳ₕₑ }$\
+$\text{\color{#950000}physment ill⠀﹋⠀ss subs yume}$\
+$\text{\color{#950000}c+h welcome , w2i always pls}$\
+$\text{\color{#950000}ac - HUEBLV}$
 \
 [ⅰ . rentry](https://rentry.co/subkiiting) [ⅱ . twitter](https://x.com/medtraitor_) [ⅲ . gunslol](https://rentry.co/wipd)
 
-<img src="https://komarev.com/ghpvc/?username=templesmedic&label=patients&color=459c7b&style=plastic"> </p>
+<img src="https://komarev.com/ghpvc/?username=templesmedic&label=Three_Days_Grace&color=950000&style=plastic"> </p>
 
